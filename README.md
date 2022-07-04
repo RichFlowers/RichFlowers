@@ -1,1 +1,1 @@
-i like mineacraft and girls 
+i like minecraft and girls 
